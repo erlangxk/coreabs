@@ -1,45 +1,40 @@
-Perfect—let’s keep **Day A** as your go-to home-friendly baseline, and I’ll give you **two fresh versions of Day B**:
+# Core Training Plan (3–4x per Week)
+
+Goal: Build strong, stable, and athletic core strength  
+Time: 15–20 minutes per session  
+Rotate between these 3 sessions
 
 ---
 
-### **Day B – Home Version (No Equipment, Core Focus + Rotation)**
-**All bodyweight. Just need a mat or soft surface.**
+## Day A – Core Stability & Strength (No Equipment, Home-Friendly)
 
-1. **Side Plank with Reach-Through** – 3 x 10 reps each side  
-   *Engages obliques and improves rotational control.*  
-2. **V-Ups or Tuck Crunches** – 3 x 15  
-   *Targets upper and lower abs.*  
-3. **Lying Windshield Wipers** – 3 x 10–12 per side  
-   *Great for obliques and core control.*  
-4. **Plank Shoulder Taps** – 3 x 20 (10 each side)  
-   *Anti-rotation and core stability.*  
-5. **Reverse Crunches** – 3 x 15  
-   *Focuses on lower abs.*
-
-**Optional Finisher:** 30 seconds of **mountain climbers** x 3 rounds (for a cardio core burn)
+1. Plank – 3 sets of 30–60 seconds  
+2. Dead Bug – 3 sets of 10–12 reps  
+3. Russian Twists – 3 sets of 20 reps (10 per side)  
+4. Glute Bridges – 3 sets of 15 reps  
 
 ---
 
-### **Day B – Gym Version (Equipment-Based Power Core)**
-**Use cable machine, medicine ball, and pull-up bar.**
+## Day B – Home Version (Bodyweight, No Equipment)
 
-1. **Cable Woodchoppers** – 3 x 12 each side  
-   *Strong rotational core movement.*  
-2. **Hanging Leg Raises** – 3 x 10–15  
-   *Hard on the lower abs and grip.*  
-3. **Ab Wheel Rollouts** (or barbell rollouts) – 3 x 8–12  
-   *Great for deep core and anti-extension.*  
-4. **Cable Pallof Press** – 3 x 10–12 each side  
-   *Anti-rotation training with resistance.*  
-5. **Weighted Decline Sit-ups** – 3 x 12  
-   *Adds load to traditional core flexion.*
+1. Side Plank with Reach-Through – 3 sets of 10 reps per side  
+2. V-Ups or Tuck Crunches – 3 sets of 15 reps  
+3. Lying Windshield Wipers – 3 sets of 10–12 per side  
+4. Plank Shoulder Taps – 3 sets of 20 reps (10 per side)  
+5. Reverse Crunches – 3 sets of 15 reps  
 
-**Optional Finisher:** 3 rounds of **medicine ball slams** (15 reps) for explosive core power.
+Optional Finisher:  
+- Mountain Climbers – 30 seconds x 3 rounds
 
 ---
 
-You can rotate:
-- **Week 1**: Day A + Home B
-- **Week 2**: Day A + Gym B
+## Day B – Gym Version (Equipment-Based Core Power)
 
-Would you like me to turn this into a weekly plan based on your swimming and badminton days?
+1. Cable Woodchoppers – 3 sets of 12 reps per side  
+2. Hanging Leg Raises – 3 sets of 10–15 reps  
+3. Ab Wheel Rollouts (or Barbell Rollouts) – 3 sets of 8–12 reps  
+4. Cable Pallof Press – 3 sets of 10–12 reps per side  
+5. Weighted Decline Sit-ups – 3 sets of 12 reps  
+
+Optional Finisher:  
+- Medicine Ball Slams – 3 rounds of 15 reps
